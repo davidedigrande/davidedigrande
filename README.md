@@ -9,4 +9,4 @@ On top of that, I have past experiences as a Graphic Designer, I can draw and I 
 
 Yes, I love being "horizontal" and gaining as much experience and knowledge I can, in the widest range of domains possible.
 
-I firmly believe this will make me the smartest person I can be :)
+I firmly believe this will make me the smartest person I can be, and ultimately, a better developer :)
